@@ -8,8 +8,6 @@
 
 ${\color{#742888}\textsf{yeah im still coping okay shut up}}$
 
-${\color{#742888}\textsf{also wifies yumes heavy dni/thin ice, sorry}}$
-
 <br><p align="center"><img src="https://komarev.com/ghpvc/?username=sunnyfoggy&base=20000&label=✦&base=0&color=742888&style=plastic"> </p>
 
 ${\color{#672888}\textsf{hey ze!!}}$
