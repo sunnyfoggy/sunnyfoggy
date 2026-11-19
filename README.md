@@ -1,5 +1,6 @@
 <div align="center"> 
-  im swarmed with exams but like bro have this ok https://rentry.co/xm like get urls idk bro just yeah also uh my pronouns.cc https://prns.cc/tjzwb im putting links here because i have no space above ok 😭   
+  im swarmed with exams but like bro have this ok https://rentry.co/xm like get urls idk bro just yeah also uh my pronouns.cc https://prns.cc/tjzwb im putting links here because i have no space above ok 😭
+  
   ${\color{#742888}\textsf{finally updated this 10/11/2026}}$
   
  ${\color{#742888}\textsf{have this thing i made while i study for school}}$
